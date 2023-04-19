@@ -6,4 +6,4 @@ Desarrollador Backend 💻
 
 • Analista Programador en UAI (2021 - 2023)
 
-• Carrera de Desarrollo Full Stack en Coderhouse (2023 - 2024)
+• Carrera de Desarrollo Full Stack en Coderhouse (2023 - 2024) 
