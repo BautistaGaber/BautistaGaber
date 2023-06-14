@@ -7,3 +7,7 @@ Desarrollador Backend 💻
 • Analista Programador en UAI (2021 - 2023)
 
 • Carrera de Desarrollo Full Stack en Coderhouse (2023 - 2024) 
+
+•🤓 Experiencia profesional:
+
+Desarrollador de Software en Axxon Consulting
