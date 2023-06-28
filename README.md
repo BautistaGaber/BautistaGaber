@@ -10,7 +10,7 @@ Desarrollador Backend 💻
 
 •🤓 Experiencia profesional:
 
-Desarrollador de Software en Axxon Consulting
+Desarrollador de Software en Axxon Consulting 
 
 •🎭 Redes:
 
