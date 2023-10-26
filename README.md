@@ -1,6 +1,6 @@
 Hi there 👋
 
-Desarrollador Backend 💻
+Desarrollador Full Stack 💻
 
 📚 Educacion:
 
