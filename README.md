@@ -10,6 +10,8 @@ Desarrollador Full Stack 💻
 
 •🤓 Experiencia profesional:
 
+Desarrollador de Software en Vantek 
+
 Desarrollador de Software en Axxon Consulting 
 
 •🎭 Redes:
